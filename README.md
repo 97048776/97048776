@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @97048776 Sem Vh
+- 👋 Hi, I’m Sem Vh
 - 👀 I’m interested in - Gaming, ICT and cars (Classics and JDM)
 - 🌱 I’m currently learning - ICT 4
 - 💞️ I’m looking to collaborate on - Nothing just doin school
